@@ -1,1 +1,1 @@
-# Games On Chain - Root
+# Game The Chain - Root
